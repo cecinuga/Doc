@@ -1,1 +1,1 @@
-My personal autonomus studies, enjoy
+enjoy
